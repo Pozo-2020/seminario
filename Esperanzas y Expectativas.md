@@ -64,4 +64,4 @@ Mi esperanza:
 Aprender lo mas que pueda y ser mejor que hoy en el mañana.
 
 Mi expectativa:
-Desarrollar mis habilidades tecnicas y mi pensamiento logico aprender lo mas posible y dar mi 100% en todo lo que haga.
+Desarrollar mis habilidades tecnicas y mi pensamiento logico aprender lo mas posible y dar mi 100% en todo lo que haga..
